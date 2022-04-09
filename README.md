@@ -12,6 +12,6 @@
 Here are some crucial components of our lives:
 
 - Family 
-- Achieving & enjoying
+- Achieving & enjoying : are both vital, but they must be balanced.
 - Health
 - Planning
