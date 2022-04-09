@@ -7,7 +7,7 @@
 
 ### Time Management 
 
-The goal of time management is to maximize the amount of time spent on critical tasks.
+**The objective of time management** : The goal of time management is to maximize the amount of time spent on critical tasks. So one goal of efficiency is to spend less time on the insignificant things so that we may devote more time to the important things.
 
 Here are some crucial components of our lives:
 
