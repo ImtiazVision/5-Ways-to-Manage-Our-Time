@@ -1,4 +1,9 @@
 # 5-Ways-to-Manage-Our-Time
+- Say no
+- Negotiate
+- Delegate
+- Improve systems
+- Overcome perfection
 
 ### Time Management 
 
